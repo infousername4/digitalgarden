@@ -4,6 +4,7 @@
 
 
 **Natzi Germany vs Conservative US**
+This was created by the original poster of this website
 
 Germany:
 
